@@ -1,2 +1,0 @@
-### Hi there 👋
-Suphamongkon47
